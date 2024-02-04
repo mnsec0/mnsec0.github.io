@@ -1,3 +1,3 @@
 ## Welcome!
 
-### [mnsec0.net](https://mnsec0.net) is now my personal site. 
+### This is now my personal site. -mass_units Feb 4 2024
